@@ -1,0 +1,1 @@
+Richard e gay e eu que como
